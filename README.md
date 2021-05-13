@@ -1,2 +1,2 @@
 # Mi REPOSITORIO
-#### JAvier Garcia
+#### Javier Garcia
